@@ -1,1 +1,1 @@
-Магазин можно открыть по ссылке - http://goodsellmarket.ru/r/EZyFz9xe/s
+Магазин можно открыть по ссылке - https://qna.habr.com/q/409711
